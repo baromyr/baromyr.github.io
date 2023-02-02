@@ -1,1 +1,0 @@
-# baromyr.github.io
